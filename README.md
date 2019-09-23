@@ -23,12 +23,12 @@ gonna fight it all, pullin' back
 leadin' home, nagging ain't this
 kinda land yeah
 
-leadin' home
+leavin' home
 gonna puck it like a right up (pu- it laka raaayup)
 
 - light it up fam
 right out to the foreign lands 
-bragga to the xxxxx
+bragga to the xxxxx downed
 lick'em - behind the glass 
 tease'em - still so crass
 appease them leave ya will
