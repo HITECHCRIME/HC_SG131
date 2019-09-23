@@ -18,9 +18,9 @@ https://www.youtube.com/watch?v=-s482k0vrPw CAP by Highself Productions
 ## Lyrics
 
 ```
-leavin' home
+leadin' home
 gonna fight it all, pullin' back
-lettin' go, nagging ain't this
+leadin' home, nagging ain't this
 kinda land yeah
 
 leadin' home,
@@ -36,13 +36,16 @@ preachin' doin' so get to doin' just that
 lick'em - behind the glass 
 tease'em - still so crass
 appease them leave ya will
-at the stairs
-
+at the stairs or behind
 
 we will close the deals as we made them for ya
 tending the the herd will tire that's obvious
 heard that you vowed never to erase them
 your own lads but did it anyway yeah
+
+lettin' go
+leavin' home
+
 
 to my guise
 
