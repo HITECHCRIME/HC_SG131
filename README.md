@@ -20,16 +20,16 @@ https://www.youtube.com/watch?v=-s482k0vrPw CAP by Highself Productions
 ```
 leavin' home
 gonna fight it all, pullin' back
-leadin' home, nagging ain't this
+lettin' go, nagging ain't this
 kinda land yeah
 
-lettin' go
+leadin' home,
 gonna puck it like a right up (pu- it laka raaayup)
 
 - light it up fam
 right out to the foreign lands 
 bragga to the xxxxx downed
-please make me proud
+please make me prrrrroud
 that means what it sounds
 preachin' doin' so get to doin' just that
 
