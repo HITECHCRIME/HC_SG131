@@ -27,7 +27,7 @@ leadin' home
 gonna puck it like a right up (pu- it laka raaayup)
 
 - like it up fam
-right up to the foreign lands 
+right out to the foreign lands 
 lick'em from behind the glass 
 
 we will close the deals as we made them for ya
