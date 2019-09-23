@@ -26,9 +26,14 @@ kinda land yeah
 leadin' home
 gonna puck it like a right up (pu- it laka raaayup)
 
-- like it up fam
+- light it up fam
 right out to the foreign lands 
-lick'em from behind the glass 
+bragga to the xxxxx
+lick'em - behind the glass 
+tease'em - still so crass
+appease them leave ya will
+at the stairs
+
 
 we will close the deals as we made them for ya
 tending the the herd will tire that's obvious
@@ -36,6 +41,10 @@ heard that you vowed never to erase them
 your own lads but did it anyway yeah
 
 to my guise
+
+
+had a fallin' out
+
 
 
 
