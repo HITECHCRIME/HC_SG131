@@ -29,8 +29,11 @@ gonna puck it like a right up (pu- it laka raaayup)
 - like a righta fam
 right up to the foreign lands 
 lick'em from behind the glass 
-we will close the deals
-as we made them for ya
+
+we will close the deals as we made them for ya
+tending the the herd will tire that's obvious
+heard that you vowed never to erase them
+your own lads but did it anyway yeah
 
 to my guise
 
