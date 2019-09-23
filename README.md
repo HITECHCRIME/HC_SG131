@@ -18,17 +18,21 @@ https://www.youtube.com/watch?v=-s482k0vrPw CAP by Highself Productions
 ## Lyrics
 
 ```
-leadin' home
+leavin' home
 gonna fight it all, pullin' back
 leadin' home, nagging ain't this
 kinda land yeah
 
-leavin' home
+lettin' go
 gonna puck it like a right up (pu- it laka raaayup)
 
 - light it up fam
 right out to the foreign lands 
 bragga to the xxxxx downed
+please make me proud
+that means what it sounds
+preachin' doin' so get to doin' just that
+
 lick'em - behind the glass 
 tease'em - still so crass
 appease them leave ya will
