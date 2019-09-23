@@ -30,7 +30,7 @@ gonna puck it like a right up (pu- it laka raaayup)
 right up to the foreign lands 
 lick'em from behind the glass 
 we will close the deals
-coz we made them, isn't that right bra?
+as we made them for ya
 
 to my guise
 
