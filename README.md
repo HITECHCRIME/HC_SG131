@@ -21,12 +21,12 @@ https://www.youtube.com/watch?v=-s482k0vrPw CAP by Highself Productions
 leadin' home
 gonna fight it all, pullin' back
 leadin' home, nagging ain't this
-kinda land
+kinda land yeah
 
 leadin' home
 gonna puck it like a right up (pu- it laka raaayup)
 
-- like a righta fam
+- like it up fam
 right up to the foreign lands 
 lick'em from behind the glass 
 
