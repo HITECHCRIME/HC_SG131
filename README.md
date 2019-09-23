@@ -28,8 +28,9 @@ gonna puck it like a right up (pu- it laka raaayup)
 
 - like a right up fam
 right up to the foreign lands 
+lick'em from behind the glass 
 we will close the deals
-coz we made them
+coz we made them, isn't that right bra?
 
 to my guise
 
