@@ -24,10 +24,12 @@ leadin' home, nagging ain't this
 kinda land
 
 leadin' home
-gonna puck it like a right up
+gonna puck it like a right up (pu- it laka raaayup)
 
 - like a right up fam
 right up to the foreign lands 
+we will close the deals
+coz we made them
 
 to my guise
 
