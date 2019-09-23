@@ -19,14 +19,17 @@ https://www.youtube.com/watch?v=-s482k0vrPw CAP by Highself Productions
 
 ```
 leadin' home
-gonna fight it all in back
-leadin' home ain't gotta do
-foreign land
+gonna fight it all, pullin' back
+leadin' home, nagging ain't this
+kinda land
 
 leadin' home
 gonna puck it like a right up
 
-like a right up
+- like a right up fam
+right up to the foreign lands 
+
+to my guise
 
 
 
