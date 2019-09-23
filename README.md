@@ -8,6 +8,8 @@
 
 Description.
 
+https://www.youtube.com/watch?v=-s482k0vrPw CAP by Highself Productions
+
 
 **Title:**  / **Featuring:** 
 
@@ -16,6 +18,17 @@ Description.
 ## Lyrics
 
 ```
+leadin' home
+gonna fight it all in back
+leadin' home ain't gotta do
+foreign land
+
+leadin' home
+gonna puck it like a right up
+
+like a right up
+
+
 
 
 ```
