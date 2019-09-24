@@ -28,10 +28,12 @@ gonna puck it like a right up (pu- it laka raaayup)
 
 - light it up fam
 right out to the foreign lands 
+
 bragga to the xxxxx downed
 please make me prrrrroud
 that means what it sounds
-preachin' doin' so get to doin' just that
+(drown) preachin' doin' so get to doin' just that
+dawn approaches
 
 lick'em - behind the glass 
 tease'em - still so crass
